@@ -1,1 +1,1 @@
-# ılıl means Analytics
+# ılıl Analytics
